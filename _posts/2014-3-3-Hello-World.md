@@ -1,4 +1,4 @@
-来都来了，看看图，随机的![来都来了，看看图](https://www.dmoe.cc/random.php)![](https://pixiv.yuki.sh/api/recommend)
+来都来了，看看图，随机的![来都来了，看看图](https://www.dmoe.cc/random.php)
 csp复赛求过
 ##### 哔站主页：https://space.bilibili.com/505299959
 #### 常用名：铱澪Iridium
